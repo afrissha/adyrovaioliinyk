@@ -1,0 +1,2 @@
+# adyrovaioliinyk
+prezentacja na chemię
